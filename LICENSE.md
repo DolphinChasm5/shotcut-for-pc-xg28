@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Shotcut for PC | Shotcut for Windows extension with premium Shotcut for PC | Shotcut for Windows Extension | 4K-export + transition-effects. Featuring 4K-export
 
 
 
